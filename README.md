@@ -1,4 +1,6 @@
 # luffy
 kuch nahi
-bakki was defeated by yujiro 
+<br>
+bakki was defeated by yujiro
+<br>
 goku died
